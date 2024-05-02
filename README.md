@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @xz1o
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning how to make html sites
+- 💞️ I’m looking to collaborate on school games
+- 📫 How to reach me @chillflamingo1234@gmail.com
+- 😄 Pronouns: the/boss
+- ⚡ Fun fact: This is my first time coding
